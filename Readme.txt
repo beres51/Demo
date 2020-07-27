@@ -1,0 +1,5 @@
+- Tiszta kézzel üljünk asztalhoz!
+- A kenyeret törjük!
+- Tele szájjal ne beszéljünk!
+- Legyünk előzékenyek a nőkkel és az idősebbekkel!
+- Köszönjük meg az ételt!
